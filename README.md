@@ -14,7 +14,7 @@ The physique I got so far.
 
  Huge fan of pop punk from 2000's
  especially weezer.
- got this addiction with revisiting a lot of parts like old songs. I also really like building structures in any form (Minecraft, eg.)
+ got this addiction with revisiting a lot of parts like old songs. I also really like building structures in any form in attention to detail (Minecraft, eg.)
 
 ## ok lol bye.
 

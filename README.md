@@ -1,4 +1,4 @@
-## Hi there 👋
+To anyone's seeing this lol welcome to my profile.
 
 <!--
 **RaveVash/RaveVash** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

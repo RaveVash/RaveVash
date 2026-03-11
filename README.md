@@ -12,7 +12,8 @@ The physique I got so far.
 <img width="381" height="475" alt="2026-03-11 170038" src="https://github.com/user-attachments/assets/296edf21-1e6e-4fa7-9bdf-9cacb701bb48" />
 
  huge fan of pop punk from 2000's
- especially weezer lol.
+ especially weezer.
+ And I really like building structures in any form (Minecraft, eg.)
 
 ## ok lol bye.
 

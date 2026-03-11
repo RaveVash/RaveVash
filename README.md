@@ -8,7 +8,8 @@ A 21 year old who loves to play games with his girilfriend whenever he can.
 - Photohrapher
 
 The physique I got so far.
-![SPOILER_IMG_20250818_234815](https://github.com/user-attachments/assets/49079a18-d9d8-4b0b-a31e-32ec32678ff2)
+
+<img width="381" height="475" alt="2026-03-11 170038" src="https://github.com/user-attachments/assets/296edf21-1e6e-4fa7-9bdf-9cacb701bb48" />
 
 
 

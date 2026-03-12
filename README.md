@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=RaveVash)
 ## To anyone's seeing this lmao welcome to my profile.
-A 22 year old who loves to play games with his girilfriend whenever he can.
+Some 22 year old who loves to play games with his girilfriend whenever he can.
 ## My hobbies..
 - Chess
 - Gym
@@ -15,5 +15,6 @@ A 22 year old who loves to play games with his girilfriend whenever he can.
 
 ## ok lol bye.
 
+![weezer-dance](https://github.com/user-attachments/assets/412d6a78-61c8-4979-b9ba-2ae7e09b2adb)
 
 

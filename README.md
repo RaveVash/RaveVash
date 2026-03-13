@@ -5,8 +5,8 @@ Some 22 year old who loves to play games with his girilfriend whenever he can.
 - Chess
 - Gym
 - Basketball
-- Photohrapher
-- Be with girlfriend of course
+- Photohraphy
+- Be with my girlfriend of course
   
 
  Huge fan of pop punk from 2000's

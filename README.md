@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=RaveVash)
+![Views](https://komarev.com/ghpvc/?username=RaveVash)
 ## To anyone seeing this lmao welcome to my profile.
 Some 22 year old who loves to play games with his girilfriend whenever he can.
 ## My hobbies . .

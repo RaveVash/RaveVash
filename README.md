@@ -2,6 +2,8 @@
 
 ![Views](https://komarev.com/ghpvc/?username=RaveVash&color=blueviolet&label=Nosy)
 ## To anyone seeing this lmao welcome to my profile.
+https://guns.lol/currencydetox
+
 Some 22 year old who loves to play games with his girilfriend whenever he can.
 
 ## My hobbies . .
